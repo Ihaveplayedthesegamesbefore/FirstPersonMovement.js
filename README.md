@@ -16,3 +16,4 @@ Thanks,
        Also sub to my kofi if you like :) 
 https://ko-fi.com/thebiblecodex
 p.s you can also rotate picked up objects by holding R and moving your mouse! :)
+ALSO btw this also includes head bobbing for realism...
